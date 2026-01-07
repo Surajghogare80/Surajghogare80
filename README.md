@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **surajghogare1001@gmail.com**
 
-- 📄 Know about my experiences [ https://drive.google.com/file/d/1bC-cX8SeR1MX9K7DHRFTaJZesRf_7vZ4/view?usp=drive_link](https://drive.google.com/file/d/1dApjIXQBSjgqBN9CZRtwaOcto_2SAQoK/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1L33Q8XHxr-FaSabJBwvZcjCV9Q2LGIJr/view?usp=drive_link](https://drive.google.com/file/d/1L33Q8XHxr-FaSabJBwvZcjCV9Q2LGIJr/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
